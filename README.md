@@ -11,7 +11,7 @@ i live in the philippines
 i am sixteen years old
 
 i play games
-- [tetrio](https://ch.tetr.io/u/ywssp) - level one hundred and forty-four, and in s rank
+- [tetrio](https://ch.tetr.io/u/ywssp) - level one hundred and forty-four, and in s-
 - [osu](https://osu.ppy.sh/users/13897526) - four hundred and two performance points
 - [valorant](https://tracker.gg/valorant/profile/riot/ywssp%23ywssp/overview) - level thirty-eight, unranked
 
